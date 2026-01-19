@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with the People coming from diffrent place and meet virtualy 
 - 📫 How to reach me to ? - by the instagram @shivanshurajput_95 and by following your intution ;
 - 😄 Pronouns: Love with I,Me,& Myself
-- ⚡ Fun fact: Bura jo Dekhan mai chala ,Bura na Milya ko ,Jo maan Khudko ko dekha,Mujhse Bura Na aur koi - (BY - KABIR DAAS JI).    
+- ⚡ Fun fact: It take  inspiration and Activity to the point of insanity to create something truly worthwhile for everyone.
 
 <!---
 ShivanshuRajput95/ShivanshuRajput95 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
